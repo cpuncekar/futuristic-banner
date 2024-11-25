@@ -13,3 +13,6 @@ hd wallpaper featuring black main background colour, with fluro glowing greens, 
 
 Link: https://www.midjourney.com/jobs/01057aa4-4ba5-46c3-bda0-38018d1a8275?index=0
 hd wallpaper featuring black main background colour, with fluro glowing greens, blues and purples in blurred flowing blends. ehtereal
+
+Link: https://www.midjourney.com/jobs/01057aa4-4ba5-46c3-bda0-38018d1a8275?index=0
+hd wallpaper featuring black main background colour, with fluro glowing greens, blues and purples in blurred flowing blends. ehtereal
